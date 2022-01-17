@@ -78,7 +78,7 @@ Something you can not miss when visiting KKU
 > พิกัด: (ซอยหอ NP Park) หลังมหาวิทยาลัยขอนแก่น
 > โทร: 062-103-9339
 
-##### 7. <span style="color:red">Zab</span>. สุกี้กระทะร้อน :hotsprings: :hotsprings: :hotsprings:
+##### 7. Zab สุกี้กระทะร้อน :hotsprings: :hotsprings: :hotsprings:
 
 <img src="media/zabsuki.jpg" width="600"/>
 
